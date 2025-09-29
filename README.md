@@ -14,5 +14,5 @@
  
  Mulher  🏳️‍🌈 <br>
  Farmacêutica  💊 <br>
- Mãe de pet  🐶🐶 <br>
+ Mãe de pet  🐶🐶🐶 <br>
 
